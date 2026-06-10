@@ -14,4 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# Quem sou eu? ;)  💻 Jovem apaixonado por tecnologia   📼 Fã da cultura dos anos 2000   🎮 Curto games, internet e nostalgia   😎 Sempre conectado e aprendendo coisas novas  *"Saudades de quando a internet tinha depoimentos, scraps e comunidades!"* ✨
+Jovem apaixonado por tecnologia =D
+
+Curto mto a cultura dos anos 2000, games, internet e td q envolve informática. 💻
+
+Saudades do Orkut, MSN e das comunidades q marcaram época! ^^
+
+Add aí! ;)
